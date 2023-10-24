@@ -1,8 +1,8 @@
 # Sure
 
 - [First Draft](index.md)
-- Revision
-- Edit
+- [Revision](revision.md)
+  [Edit](edit.md)
 
 ## Edit
 
