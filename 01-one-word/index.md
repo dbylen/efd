@@ -1,6 +1,10 @@
 # Sure
 
-## Edited Draft
+- [First Draft](index.md)
+- Revision
+- Edit
+
+## First Draft
 
 You might think that a word SURE is a way of saying "yes" or "absolutely," but guess what? It can be ironic or sarcastic.
 
