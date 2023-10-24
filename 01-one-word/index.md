@@ -20,6 +20,10 @@ Sometimes, when you get a simple "Sure" as a reply, it might mean the person isn
 
 In the end, the word "sure" is way more interesting than you'd think. It can be used in all sorts of sneaky ways to show the opposite of what it seems. "Sure" might look friendly on the outside, but it's got a whole world of hidden meanings. So, next time you hear or see "sure," pay close attention.
 
+But maybe I am an overthinker and we can tell the same about other words like „of course“. Is there a posibility of irony and sarcasm in this word? I think yes, but in my opinion it´s still a little bit more positive, haha. I would rather say absolutely, if I mean something. What do you think?
+
+Absolutely sounds that you are pretty convinced about your statement or choice!
+
 ## Revision
 
 -
@@ -27,7 +31,3 @@ In the end, the word "sure" is way more interesting than you'd think. It can be 
 ## Edit
 
 -
-
-But maybe I am an overthinker and we can tell the same about other words like „of course“. Is there a posibility of irony and sarcasm in this word? I think yes, but in my opinion it´s still a little bit more positive, haha. I would rather say absolutely, if I mean something. What do you think?
-
-Absolutely sounds that you are pretty convinced about your statement or choice!
