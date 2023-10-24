@@ -1,8 +1,8 @@
 # Sure
 
 - [First Draft](#first-draft)
-- [Revision](revision.md)
-- [Edit](edit.md)
+- [Revision](#revision)
+- [Edit](#edit)
 
 ## First Draft
 
@@ -19,6 +19,14 @@ It can also be a doubt. Imagine you're cooking, and someone asks, "Are you sure 
 Sometimes, when you get a simple "Sure" as a reply, it might mean the person isn't all that excited and convinced.
 
 In the end, the word "sure" is way more interesting than you'd think. It can be used in all sorts of sneaky ways to show the opposite of what it seems. "Sure" might look friendly on the outside, but it's got a whole world of hidden meanings. So, next time you hear or see "sure," pay close attention.
+
+## Revision
+
+-
+
+## Edit
+
+-
 
 But maybe I am an overthinker and we can tell the same about other words like „of course“. Is there a posibility of irony and sarcasm in this word? I think yes, but in my opinion it´s still a little bit more positive, haha. I would rather say absolutely, if I mean something. What do you think?
 
