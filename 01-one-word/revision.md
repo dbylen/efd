@@ -2,7 +2,7 @@
 
 - [First Draft](index.md)
 - [Revision](revision.md)
-- [Edit](revision.md)
+- [Edit](edit.md)
 
 ## Revision
 
