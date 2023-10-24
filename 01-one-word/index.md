@@ -1,6 +1,6 @@
 # Sure
 
-- [First Draft](index.md)
+- [First Draft](#first-draft)
 - [Revision](revision.md)
 - [Edit](edit.md)
 
