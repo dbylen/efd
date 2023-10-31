@@ -24,8 +24,7 @@ But maybe I am an overthinker and we can tell the same about other words like â€
 
 Absolutely sounds that you are pretty convinced about your statement or choice!
 
-![image](https://github.com/dbylen/efd/assets/148856075/caf5ad88-6fc4-4ad3-9c2e-23f6469e8def)
-
+![lorelai](https://github.com/dbylen/efd/assets/148856075/1c406259-3f38-4397-921e-327d41e91d91)
 
 ## Revision
 
