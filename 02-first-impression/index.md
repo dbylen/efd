@@ -2,8 +2,7 @@
 
 ## Draft presentation
 
-- [View Presentation]
-- [Introduction]
+- [About me]
 - [Projects]
 
 ## About me
