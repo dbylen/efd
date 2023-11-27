@@ -6,7 +6,9 @@
 - [Introduction]
 - [Projects]
 
-## Introduction
+## About me
+
+![myself](img/brunette_standing-and-smiling.JPG)
 
 Hi,
 
