@@ -23,8 +23,6 @@ I love to design typography that is curvy, dynamic and organic.
 
 I enjoy to work with mixed media ways of designing.
 
-I also do brand & visual identities that have a concept and a strategy behind their logo. When I work with client I see it as a teamwork and collaboration. I really love to search for our solutions and understand their point of views.
-
-I see myself mostly in fashion or some other cultural  industry such as music and production, because I can express myself and clients self the most while designing for them.
+I also do brand & visual identities that have a concept and a strategy behind their logo. When I work with client I see it as a teamwork and collaboration. I really love to search for our solutions, understand their point of views and express them in their most authentic way. I mainly design personal brands, because I can work with very interesting people and creators.
 
 ## My projects
