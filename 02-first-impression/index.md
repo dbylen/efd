@@ -2,10 +2,10 @@
 
 ## Draft presentation
 
-- [About me]
-- [Projects]
+- [About me](#about)
+- [Projects](#projects)
 
-## About me
+## About
 
 ![myself](img/brunette_standing-and-smiling.JPG)
 
