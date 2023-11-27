@@ -42,6 +42,6 @@ I also do brand & visual identities that have a concept and a strategy behind th
 
 ![carolinegorg](img/caroline-gorg-logo-horizontal-and-vertical-with-photographies-of-products-and-herself.png
 )
-![atelierhaus](img/atelier-haus-logo horizontal-and-vertical-with-photographies-of-their-fashion.png)
+![atelierhaus](img/atelier-haus-logo-horizontal-and-vertical-with-photographies-of-their-fashion.png)
 ![veksl](img/veksl-logo-and-stickers.png)
 ![veksl](img/sentie-logo-horizontal-and-vertical.png)
