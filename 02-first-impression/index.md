@@ -19,6 +19,8 @@ I currently work for two advertising companies named Saatchi & Saatchi and Prini
 
 I’d say that I’m openminded, friendly, empathic and easy to talk to. In my free time I enjoy spending my time and going for a walks with my puppy, friends & just being outside. I’m interested in psychology and art therapy.  It will not be surprise if I say that I'm falling for art, currently I’m working on my Bachelor thesis about Art brut, that’s my most favorite type of art at the moment. I also create and I have one art brut fun piece of mine. I’m also falling for architecture and photography, mainly analogue.
 
+![gaudionanaloguewithtypography](img/experimental_typography_and_poster.png)
+
 I enjoy my work mostly when I can be creative in some experimental ways. I love dynamic designs and pieces that just make you feel like something is happening.
 
 I love to design typography that is curvy, dynamic and organic.
