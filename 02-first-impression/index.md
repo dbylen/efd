@@ -35,7 +35,7 @@ I enjoy to work with mixed media ways of designing & I also design my own textur
 
 I also do brand & visual identities that have a concept and a strategy behind their logo. When I work with client I see it as a teamwork and collaboration. I really love to search for our solutions, understand their point of views and express them in their most authentic way. I mainly design personal brands, because I can work with very interesting people and creators.
 
-## My projects
+## Projects
 
 ![carolinegorg](img/caroline-gorg-logo-horizontal-and-vertical-with-photographies-of-products-and-herself.png
 )
