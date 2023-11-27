@@ -20,8 +20,9 @@ I’d say that I’m openminded, friendly, empathic and easy to talk to. In my f
 I enjoy my work mostly when I can be creative in some experimental ways. I love dynamic designs and pieces that just make you feel like something is happening.
 
 I love to design typography that is curvy, dynamic and organic.
-![typographyexperiments](img/experimental-typography-and-poster.png)
+![experimental-typography-and-poster](https://github.com/dbylen/efd/assets/148856075/183edc60-7fd6-468e-a5e0-35fc8178d094)
 I enjoy to work with mixed media ways of designing.
+
 
 ![mixedmediaposter](img/mixed-media-technique-on-a-poster.png)
 ![mixedmediastoryboard](img/mixed-media-animations-canvas.png)
