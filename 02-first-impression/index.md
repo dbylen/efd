@@ -26,14 +26,10 @@ I enjoy my work mostly when I can be creative in some experimental ways. I love 
 I love to design typography that is curvy, dynamic and organic.
 
 ![experimental-typography-and-poster](https://github.com/dbylen/efd/assets/148856075/183edc60-7fd6-468e-a5e0-35fc8178d094)
-
-I enjoy to work with mixed media ways of designing.
-
-
 ![mixedmediaposter](img/mixed-media-technique-on-a-poster.png)
 ![mixedmediastoryboard](img/mixed-media-animations-canvas.png)
 
-I also design my own textures.
+I enjoy to work with mixed media ways of designing & I also design my own textures.
 
 ![texturesmixedmedia](img/mixed-media-technique-texturing.png)
 
