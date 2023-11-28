@@ -30,10 +30,6 @@ Absolutely sounds that you are pretty convinced about your statement or choice!
 
 ![lorelai smiling and saying if its bothering you](https://github.com/dbylen/efd/assets/148856075/1c406259-3f38-4397-921e-327d41e91d91)
 
-by Diana Bylen
-
-7 November 2023
-
 ## Revision
 
 You might think that a word "sure" is a way of saying "yes" or "absolutely," but guess what? It can be ironic or sarcastic.
@@ -54,7 +50,7 @@ But maybe I am an overthinker and we can tell the same about other words like "o
 
 Absolutely sounds that you are pretty convinced about your statement or choice! So, when did you caught yourself saying sure and was it honest?
 
-![Gilmore Girl’s Lorelai smiling and asking if, “Is this bothering you?”. Animated GIF.](https://media2.popsugar-assets.com/…if)
+![lorelai smiling and asking if its bothering you](https://github.com/dbylen/efd/assets/148856075/1c406259-3f38-4397-921e-327d41e91d91)
 
 ## Edit
 
