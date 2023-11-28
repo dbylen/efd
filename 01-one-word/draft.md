@@ -4,10 +4,7 @@ by Diana Bylen
 
 7 November 2023
 
-- [First Draft](#first-draft)
-- [Revision](#revision)
-
-## First Draft
+- - -
 
 You might think that a word SURE is a way of saying "yes" or "absolutely," but guess what? It can be ironic or sarcastic.
 
@@ -54,5 +51,5 @@ Absolutely sounds that you are pretty convinced about your statement or choice! 
 GIF Source: https://tenor.com/view/bothering-is-this-bothering-you-gif-7332174
 
 ## Edit
-
+- [Edit](index.md)
 -
