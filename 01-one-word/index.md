@@ -4,6 +4,8 @@ by Diana Bylen
 
 7 November 2023
 
+- - -
+
 You might think that a word "sure" is a way of saying "yes" or "absolutely," but guess what? It can be ironic or sarcastic.
 
 I've got inspired by a TV show named Gillmore Girls, where one of the main characters, Lorelai – the mother of Rory (well known for being sarcastic). While watching this show I realized, that it’s a perfect word. 
