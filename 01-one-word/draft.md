@@ -51,7 +51,8 @@ But maybe I am an overthinker and we can tell the same about other words like "o
 Absolutely sounds that you are pretty convinced about your statement or choice! So, when did you caught yourself saying sure and was it honest?
 
 ![lorelai smiling and asking if its bothering you](https://github.com/dbylen/efd/assets/148856075/1c406259-3f38-4397-921e-327d41e91d91)
-Source: https://tenor.com/view/bothering-is-this-bothering-you-gif-7332174
+
+GIF Source: https://tenor.com/view/bothering-is-this-bothering-you-gif-7332174
 
 ## Edit
 
