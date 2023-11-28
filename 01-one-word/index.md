@@ -30,5 +30,4 @@ GIF Source: https://tenor.com/view/bothering-is-this-bothering-you-gif-7332174
 
 ## Process
 
-- [First Draft](#first-draft)
-- [Revision](#revision)
+- [First Draft](draft.md)
