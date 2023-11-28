@@ -6,7 +6,6 @@ by Diana Bylen
 
 - [First Draft](#first-draft)
 - [Revision](#revision)
-- [Edit](#edit)
 
 ## First Draft
 
