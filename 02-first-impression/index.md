@@ -37,8 +37,13 @@ I also do brand & visual identities that have a concept and a strategy behind th
 
 ## Projects
 
+### CARO
 ![carolinegorg](img/caroline-gorg-logo-horizontal-and-vertical-with-photographies-of-products-and-herself.png
 )
+### Atelier haus
 ![atelierhaus](img/atelier-haus-logo-horizontal-and-vertical-with-photographies-of-their-fashion.png)
+### Veksl
 ![veksl](img/veksl-logo-and-stickers.png)
-![veksl](img/sentie-logo-horizontal-and-vertical.png)
+### Sentie
+![logobefore](img/logo-sentie-before-i-made-it.png)
+![logosentie](img/sentie-logo-horizontal-and-vertical.png)
