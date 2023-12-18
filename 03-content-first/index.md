@@ -1,6 +1,6 @@
 # Hello there,
 
-![myself](img/brunette_standing-and-smiling.JPG)
+![myself](img/brunette_standing-and-smiling.jpg)
 
 my name’s Diana, I’m a graphic designer based in Prague & Rome. My whole family is from Ukraine, but lives in Rome. I can speak Czech, English, Russian, Ukrainian & I study Italian.
 
