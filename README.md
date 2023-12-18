@@ -3,7 +3,7 @@
 ## Portfolio
 
 - [Content](03-content-first)
-- Design
+- [Design](https://www.figma.com/file/jTQwC9qI3LNlay1AYpNlcJ/Untitled?type=design&node-id=0%3A1&mode=design&t=xUZKLq38bOUfwyoF-1)
 
 ## First impression
 
