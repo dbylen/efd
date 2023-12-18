@@ -2,7 +2,7 @@
 
 ## Portfolio
 
-- Content(03-content-first)
+- [Content](03-content-first)
 - Design
 
 ## First impression
