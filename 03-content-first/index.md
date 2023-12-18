@@ -2,11 +2,11 @@ Hi,
 
 my name’s Diana, I’m a graphic designer based in Prague & Rome. My whole family is from Ukraine, but lives in Rome. I can speak Czech, English, Russian, Ukrainian & I study Italian.
 
-I currently work for two advertising companies named Saatchi & Saatchi and Prinity, I love teamwork and I’m a big fan of deadlines. I mean, I can make it till deadline if it’s neccessary. I also freelance occasionally, working only with myself is a pleasure too. I studied bussiness academy before an art university, so starting my journey was quite random. I have always had that feeling that I have to create. I can play the guitar, draw and I just love to express myself in artistic ways.
+I currently work for two advertising companies named Saatchi & Saatchi and Prinity for clients such as Garnier, Netflix & Provdident, I love teamwork and I’m a big fan of deadlines. I mean, I can make it till deadline if it’s neccessary. I also freelance occasionally, working only with myself is a pleasure too. I studied bussiness academy before an art university, so starting my journey was quite random. I have always had that feeling that I have to create. I don't believe in horoscopes, but maybe that's because I'm a gemini. Haha. I can play the guitar, draw and I just love to express myself in artistic ways.
 
 I’d say that I’m openminded, friendly, empathic and easy to talk to. In my free time I'm a mother of a 9 months old puppy, i’m interested in psychology and art therapy.  It will not be surprise if I say that I'm falling for art, currently I’m working on my Bachelor thesis about Art brut, that’s my most favorite type of art at the moment. I also create and I have one art brut fun piece of mine. I’m also falling for architecture and photography, mainly analogue.
 
-I enjoy my work mostly when I can be creative in some experimental ways. I love dynamic designs and pieces that just make you feel like something is happening.
+I enjoy my work mostly when I can be creative in some experimental ways. In my passion projects I'm far from minimalism. I love dynamic designs and pieces that just make you feel like something is happening.
 
 I love to design typography that is curvy, dynamic and organic.
 
