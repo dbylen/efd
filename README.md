@@ -1,4 +1,11 @@
-# English for designers - [01 One word](https://dbylen.github.io/efd/01-one-word/)
+# Content first
 
-1. [One Word](01-one-word)
-2. [First Impression](02-first-impression)
+## Portfolio
+
+- Content
+- Design
+
+## First impression
+
+- [Draft content](02-first-impression)
+- [A word "sure"](01-one-word)
