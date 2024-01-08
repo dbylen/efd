@@ -1,8 +1,10 @@
-# Hello there,
+# Hello there!
 
 ![myself](img/brunette_standing-and-smiling.jpg)
 
 my name’s Diana, I’m a graphic designer based in Prague & Rome. My whole family is from Ukraine, but lives in Rome. I can speak Czech, English, Russian, Ukrainian & I study Italian.
+
+## Here's something more about me
 
 I currently work for two advertising companies named Saatchi & Saatchi and Prinity for clients such as Garnier, Netflix & Provdident, I love teamwork and I’m a big fan of deadlines. I mean, I can make it till deadline if it’s neccessary. I also freelance occasionally, working only with myself is a pleasure too. I studied bussiness academy before an art university, so starting my journey was quite random. I have always had that feeling that I have to create. I don't believe in horoscopes, but maybe that's because I'm a gemini. Haha. I can play the guitar, draw and I just love to express myself in artistic ways.
 
