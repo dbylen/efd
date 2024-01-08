@@ -6,7 +6,7 @@ my name’s Diana, I’m a graphic designer based in Prague & Rome. My whole fam
 
 If you'd like to see some of my work, here's a link to my portfolio:
 
-LINK
+- [Graphic design portfolio](https://www.figma.com/file/jTQwC9qI3LNlay1AYpNlcJ/Untitled?type=design&node-id=0%3A1&mode=design&t=xUZKLq38bOUfwyoF-1)
 
 ## ... and here's something more about me
 
