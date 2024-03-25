@@ -6,6 +6,9 @@ My name is Diana and my communication skills depend on my mood. Sometimes it's l
 As I said. My voice changes also. There are days when I'm full of energy and there are days when I'm not. 
 
 ## TONE
+It depends if I know you or not. If I dont know you it's "polite and respectful". I just keep distance a while. I always say thank you and please.
+
+My other tone of voice is "caring" for sure. I'm a deep listener and I care for those I love, I always try to help. So maybe it's also "empathetic and understanding".
 
 ## STYLE
 When I text to my friends it's full of emojis, but I can write a pretty good formal mails also. I was a texter in the past. Now I'm not one. I feel like texting takes a lot. Why would you text your friend all day, if you can tell them in real life. At least you'll have non ending conversations. My texts are short and sweet & I keep it for the real time.
