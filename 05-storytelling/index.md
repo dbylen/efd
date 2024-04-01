@@ -10,4 +10,4 @@ Next, it's time to start playing around with ideas. Write stuff down, doodle, br
 
 And finally, don't forget to feed your creativity. Surround yourself with things that inspire you, whether it's art, music, nature, or even just a really good book. And don't be afraid to step outside your comfort zone and try new things. You never know where your next great idea might come from!
 
-Finally, when you'll have some ideas, identify the best ones and give them some extra attention. Remember, creativity is more about the journey than reaching a final destination.
+When you'll have some ideas, identify the best ones and give them some extra attention. Remember, creativity is more about the journey than reaching a final destination.
