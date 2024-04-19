@@ -29,3 +29,8 @@ I wanted to create something that would benefit our culture and Art brut in Czec
 I chose to create a festival because of the variety of program.
 
 My Art brut festival contains exhibition, projections and art therapeutic workshops.
+
+Conceptually it is in honor of Jean Dubuffets 125th birthday.
+
+# Who is Jean Dubuffet?
+Jean Dubuffet was a French artist known for his innovative approach to art, particularly in the realm of Outsider art, which he termed "Art Brut." He sought to challenge traditional notions of beauty and art by creating raw, unconventional works often inspired by graffiti, children's art, and the art of the mentally ill. Dubuffet's style is characterized by bold colors, thick textures, and a rejection of traditional artistic techniques. He was a prominent figure in the mid-20th-century art world and left a lasting impact on modern art.
