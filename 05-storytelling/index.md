@@ -59,11 +59,11 @@ After you set your time you just add some extra to it.
 
 ## My process
 1. Idea (Catching ideas while riding the tram, taking a shower or before the sleep time)
-2. A beer with friends or a run
+2. A beer with friends or a run (depends on your preferences)
 3. Moodboard & sketch
-4. A beer with friends or a run
+4. A beer with friends or a run (depends on your preferences)
 5. First drafts
-6. A beer with friends or a run
+6. A beer with friends or a run (depends on your preferences)
 
 Oh lord, the tea is = not going crazy about it, giving yourself a break to let it breathe, have a proper time management.
 
