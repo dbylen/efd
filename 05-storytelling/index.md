@@ -34,10 +34,16 @@ Okay, I'm talking to creatives in this class. So you've already had this journey
 Let's agree on that...
 
 ## Creativity is freedom
-We live in a world full of buildings, technology and other cool stuff. We already do take these for granted. When we create it makes us happy. When we create without any complexes? That makes us free.
+We live in a world full of buildings, technology and other cool stuff. We already do take these for granted.
+
+When we create it makes us happy. 
+
+When we create without any complexes? That makes us free.
 
 Let's promise to ourselves that we are going to be kind to other creatives.
+
 Let's promise to ourselves that we are going to be openminded and trying to understand other point of views.
+
 Let's promise to outselves that we are going to believe that what we give comes back to us.
 
 I don't have any secret tea on how to become more creative.
