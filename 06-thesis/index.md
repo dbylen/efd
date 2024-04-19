@@ -44,3 +44,6 @@ I've kept the logo simple, because I want it to have different visual styles in 
 The main motto of the festival is "Wake up your inner child".
 
 It's because of the art therapeutic workshops that people can join.
+
+## Conclusion
+It was a long and though journey, but I'm glad of the results. I hope that one day I'll have the opportunity to implement this kind of festival, because I think it would be a strong benefit to our cultural events.
