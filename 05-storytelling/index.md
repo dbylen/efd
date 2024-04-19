@@ -40,4 +40,10 @@ Let's promise to ourselves that we are going to be kind to other creatives.
 Let's promise to ourselves that we are going to be openminded and trying to understand other point of views.
 Let's promise to outselves that we are going to believe that what we give comes back to us.
 
+I don't have any secret tea on how to become more creative.
+But at least I can share what helps me.
+You already know that kindness and openmindness are my 2 biggest pillars.
 
+Now what?
+
+## Not a 100% instructions on how to be creative from a student that has almost burned out while doing her thesis
