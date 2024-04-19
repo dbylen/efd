@@ -2,7 +2,7 @@
 
 Hi guys,
 
-I'm Diana & I study graphic design.
+my name is Diana & I study graphic design.
 
 Sometimes when I get a new project I struggle a lot. That's why I wanted to share my journey & what I've learned while struggling.
 
