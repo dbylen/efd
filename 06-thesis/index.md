@@ -19,6 +19,6 @@ Hi guys,
 
 my name is Diana Bylen & I'm a graphic design student.
 
-I've always been interested in psychology and arts. One day on a class of arts history I've learned about Art brut. I found it very interesting and I've decided to get to know it more.
+I've always been interested in psychology and arts. I've learned about Art brut thanks to our Arts history subject. I found it very interesting and I've decided to get to know it more.
 
 After I've done some research and after I've created one "art" piece of mine, I've decided to choose it as my Bachelor thesis topic.
