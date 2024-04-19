@@ -26,3 +26,18 @@ One day I was just laying in my bed and overthinking, cause that's what I usuall
 It is so iconic. When you think of it like... Nothing has stopped him from sticking to his own idea. Despite the fact that the pilot told him that it's a hat, he was claiming that it is a snake that ate an elephant.
 
 We were like this when we were kids also. We've drawn something and we were so happy about it. It was pure happiness that came out of us. Because we didn't have those strict parameters that we have now as adults.
+
+We've had competition around us and a lot of times we didn't even give a shot to a new hobby, because we've already felt that we are not good enough. We need to get rid of these complexes.
+
+Okay, I'm talking to creatives in this class. So you've already had this journey. Maybe you struggle sometimes (as I do), maybe you don't and you're a lucky person. But I think you understand me and you know what these feelings are like.
+
+Let's agree on that...
+
+## Creativity is freedom
+We live in a world full of buildings, technology and other cool stuff. We already do take these for granted. When we create it makes us happy. When we create without any complexes? That makes us free.
+
+Let's promise to ourselves that we are going to be kind to other creatives.
+Let's promise to ourselves that we are going to be openminded and trying to understand other point of views.
+Let's promise to outselves that we are going to believe that what we give comes back to us.
+
+
