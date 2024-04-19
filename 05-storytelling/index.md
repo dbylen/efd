@@ -47,3 +47,21 @@ You already know that kindness and openmindness are my 2 biggest pillars.
 Now what?
 
 ## Not a 100% instructions on how to be creative from a student that has almost burned out while doing her thesis
+I'd recommend you to interlace your time with pleasant moments. It requires a good time schedule tho. I think you know yourself the best, so I'm not going to tell you how to set your time productively as I don't know how much time you need for your specific projects.
+
+After you set your time you just add some extra to it.
+
+## My process
+1. Idea (Catching ideas while riding the tram, taking a shower or before the sleep time)
+2. A beer with friends or a run
+3. Moodboard & sketch
+4. A beer with friends or a run
+5. First drafts
+6. A beer with friends or a run
+
+Oh lord, the tea is = not going crazy about it, giving yourself a break to let it breathe, have a proper time management.
+
+Now I see.
+
+And lastly... One more tip for you buddy.
+## Get inspired outside!
