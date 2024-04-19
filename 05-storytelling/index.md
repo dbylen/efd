@@ -19,4 +19,6 @@ Since we are adults we have some experience that changed us. We don't have the c
 ## Little prince
 One day I was just laying in my bed and overthinking, cause that's what I usually do when I go to sleep. I had a vision. I remembered about the book that I've read when I was on a primary school. More precisely I've remembered a drawing of the Little prince.
 
+![littleprinc](drawinglittleprinceelephanthat-ezgif.com-webp-to-jpg-converter)
+
 It is so iconic.
