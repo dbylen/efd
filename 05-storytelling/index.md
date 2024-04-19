@@ -46,4 +46,5 @@ You already know that kindness and openmindness are my 2 biggest pillars.
 
 Now what?
 
-## Not a 100% instructions on how to be creative from a student that has almost burned out while doing her thesis
+## Not a 100% instructions on how to be creative from a student
+## that has almost burned out while doing her thesis
