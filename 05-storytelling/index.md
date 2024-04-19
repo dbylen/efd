@@ -69,5 +69,5 @@ Oh lord, the tea is = not going crazy about it, giving yourself a break to let i
 
 Now I see.
 
-And lastly... One more tip for you buddy.
+And lastly... One tip for you buddy.
 ## Get inspired outside!
