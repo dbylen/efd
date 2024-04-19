@@ -32,5 +32,15 @@ My Art brut festival contains exhibition, projections and art therapeutic worksh
 
 Conceptually it is in honor of Jean Dubuffets 125th birthday.
 
-# Who is Jean Dubuffet?
-Jean Dubuffet was a French artist known for his innovative approach to art, particularly in the realm of Outsider art, which he termed "Art Brut." He sought to challenge traditional notions of beauty and art by creating raw, unconventional works often inspired by graffiti, children's art, and the art of the mentally ill. Dubuffet's style is characterized by bold colors, thick textures, and a rejection of traditional artistic techniques. He was a prominent figure in the mid-20th-century art world and left a lasting impact on modern art.
+### Who is Jean Dubuffet?
+Jean Dubuffet was a French artist known for his innovative approach to art, particularly in the realm of Outsider art, which he termed "Art Brut." He was interested in arts of people from psychiatric hospitals & children art work.
+
+## The key visuals
+I was inspired by the Jean Dubuffets doodles. Based on those I've created two mascots that are shouting the festivals name. It contains two outdoor posters, where they are separated from each other.
+
+I've kept the logo simple, because I want it to have different visual styles in the future. It will depend on the theme.
+
+## Copywriting
+The main motto of the festival is "Wake up your inner child".
+
+It's because of the art therapeutic workshops that people can join.
