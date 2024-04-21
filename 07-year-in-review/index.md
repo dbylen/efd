@@ -9,4 +9,7 @@ Since I got a job, that I've dreamed of after getting out of school, I can't be 
 My Bachelor thesis also shows me just that the time flows like water. We had to choose the topic when we were ending the second year. And now? If I could take back the time I would probably pick something different. I just realize how much I've changed and how much I think differently. Main thing that it teached me is not to stress about every little thing tho.
 
 ## I became a peace seeker
-In my personal life a lot of things changed also. I'm constantly looking for peace and trying to be calm. I'm starting to feel how everyone around me changed also. We are not those rebelious kids anymore, we are starting to act like adults.
+In my personal life a lot of things changed also. I'm constantly looking for peace and trying to be calm. I'm starting to feel how everyone around me has changed also. We are not those rebelious kids anymore, we are starting to act like adults.
+
+## Conclusion
+- I learned how to find peace
