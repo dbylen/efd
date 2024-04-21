@@ -15,5 +15,5 @@ In my personal life a lot of things changed also. I'm constantly looking for pea
 - I've learned how to find the inner peace.
 - I've learned that I should always give it a shot when it comes to "dream job" interviews.
 - I've learned to be more confident and to have my own tone of voine in the society and at work.
-- I've learned that I should stop stressing about every little thing.
+- I've learned that I should not be stressing about every little thing.
 - I've learned about important life values that are meaningful to me.
