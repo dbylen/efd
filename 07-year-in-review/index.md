@@ -12,4 +12,8 @@ My Bachelor thesis also shows me just that the time flows like water. We had to 
 In my personal life a lot of things changed also. I'm constantly looking for peace and trying to be calm. I'm starting to feel how everyone around me has changed also. We are not those rebelious kids anymore, we are starting to act like adults.
 
 ## Conclusion
-- I learned how to find peace
+- I've learned how to find the inner peace.
+- I've learned that I should always give it a shot when it comes to "dream job" interviews.
+- I've learned to be more confident and to have my own tone of voine in the society and at work.
+- I've learned that I should stop stressing about every little thing.
+- I've learned important life values.
