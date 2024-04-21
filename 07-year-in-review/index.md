@@ -6,4 +6,7 @@ Since I'm a sensitive person and I can really stress a lot about things, this ye
 Since I got a job, that I've dreamed of after getting out of school, I can't be more grateful. Going on the interview one year ago teached me that I should always give it a shot and stay confident. Now it's been a year? It's crazy, because I have changed a lot. I've improved my InDesign & Photoshop skills, I've got to know a lot of cool people & I learned about how many working positions an advertising company has and believe me that's a lot.
 
 ## Bachelor thesis
-My Bachelor thesis also shows me just that the time flows like water. We had to choose the topic when we were ending the second year. And now? If I could take back the time I would probably pick something different. I just realize how much I changed and how much I think differently. Main thing that it teached me is not to stress about every little thing tho.
+My Bachelor thesis also shows me just that the time flows like water. We had to choose the topic when we were ending the second year. And now? If I could take back the time I would probably pick something different. I just realize how much I've changed and how much I think differently. Main thing that it teached me is not to stress about every little thing tho.
+
+## I became a peace seeker
+In my personal life a lot of things changed also. I'm constantly looking for peace and trying to be calm. I'm starting to feel how everyone around me changed also. We are not those rebelious kids anymore, we are starting to act like adults.
