@@ -7,7 +7,7 @@ my name is Diana & I study graphic design.
 Sometimes when I get a new project I struggle a lot. That's why I wanted to share my journey & what I've learned while struggling.
 
 ## What is creativity?
-„Creativity is the process of using imagination and original thinking to produce something new or innovative.“
+“Creativity is the process of using imagination and original thinking to produce something new or innovative.“
 
 Okay, but it's only according to Chat GPT. Let's have a humans POV.
 
