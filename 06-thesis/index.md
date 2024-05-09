@@ -46,10 +46,12 @@ The main motto of the festival is "Wake up your inner child". It's because of th
 
 ![artbrutfestivalinstagramposts](img/instagram2.png)
 
-I've also created a printed version of the program. I've used funky elements and mascots. I personally love the cover. I found it funny and unique while creating it.
+I've also created a printed version of the program. I've used funky elements and mascots. I personally love the cover. I found it funny and unique while creating it. We can find some basic information about art brut in it & artists that are going to be on the exhibition. I've also included exhibition & projection program on the other page.
 
 ![programofanartbrutfestival](img/program1.png)
 ![programofanartbrutfestival2](img/program2.png)
+
+Lastly I've created some event materials, like bracelettes and staff cards for example. And promotional items. Such as tote bags, t-shirts, stickers, badges.
 
 ![stickersofanartbrutfestival](img/stickers.png) ![artbrutfestivaltothebag](img/bag.png)
 
