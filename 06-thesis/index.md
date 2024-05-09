@@ -45,12 +45,15 @@ I've kept the logo simple, because I want it to have different visual styles in 
 ## Copywriting
 The main motto of the festival is "Wake up your inner child".
 
-![artbrutfestivalinstagramprofile2](img/instagram2.png)
+![artbrutfestivalwebsite1](img/web1.png)
+![artbrutfestivalwebsite2](img/web2.png)
 
 It's because of the art therapeutic workshops that people can join.
 
 ![programofanartbrutfestival](img/program1.png)
 ![programofanartbrutfestival2](img/program2.png)
+
+![stickersofanartbrutfestival](img/stickers.png)
 
 ## Conclusion
 It was a long and though journey, but I'm glad of the results. I hope that one day I'll have the opportunity to implement this kind of festival, because I think it would be a strong benefit to our cultural events.
