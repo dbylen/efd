@@ -53,7 +53,7 @@ It's because of the art therapeutic workshops that people can join.
 ![programofanartbrutfestival](img/program1.png)
 ![programofanartbrutfestival2](img/program2.png)
 
-![stickersofanartbrutfestival](img/stickers.png)
+![stickersofanartbrutfestival](img/stickers.png) ![artbrutfestivaltothebag](img/bag.png)
 
 ## Conclusion
 It was a long and though journey, but I'm glad of the results. I hope that one day I'll have the opportunity to implement this kind of festival, because I think it would be a strong benefit to our cultural events.
