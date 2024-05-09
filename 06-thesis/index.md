@@ -5,7 +5,7 @@ by Diana Bylen
 
 19th of April 2024
 
-![slides](img/artbrutprezka.pdf)
+[slides](https://drive.google.com/file/d/1zh6wQiIIpjK4Te2QZxXxxptEkMbansR7/view?usp=sharing)
 
 ## Abstract
 The bachelor thesis deals with creating a visual identity for a fictional festival focused on Art brut. The aim of the work was to create an unified visual style that effectively communicates the unique style and character of this specific art form.
