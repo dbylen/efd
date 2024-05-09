@@ -5,8 +5,10 @@ by Diana Bylen
 
 19th of April 2024
 
+See the slides
+
 ## Abstract
-The bachelor thesis deals with creating a visual identity for a fictional festival focused on Art brut. The aim of the work was to create a unified visual style that effectively communicates the unique style and character of this specific art form.
+The bachelor thesis deals with creating a visual identity for a fictional festival focused on Art brut. The aim of the work was to create an unified visual style that effectively communicates the unique style and character of this specific art form.
 
 The theoretical part focuses on basic information about Art brut, its history, including the contribution of Jean Dubuffet, and Art brut in the Czech Republic. It also explores marketing strategies, brand personality, social networks and festivals.
 
@@ -24,13 +26,7 @@ I've always been interested in psychology and arts. I've learned about Art brut 
 After I've done some research and after I've created one "art" piece of mine, I've decided to choose it as my Bachelor thesis topic.
 
 ## Process
-I wanted to create something that would benefit our culture and Art brut in Czech republic.
-
-I chose to create a festival because of the variety of program.
-
-My Art brut festival contains exhibition, projections and art therapeutic workshops.
-
-Conceptually it is in honor of Jean Dubuffets 125th birthday.
+I wanted to create something that would benefit our culture and Art brut in Czech republic & I chose to create a festival because of the variety of program. My Art brut festival contains exhibition, projections and art therapeutic workshops. Conceptually it is in honor of Jean Dubuffets 125th birthday.
 
 ### Who is Jean Dubuffet?
 Jean Dubuffet was a French artist known for his innovative approach to art, particularly in the realm of Outsider art, which he termed "Art Brut." He was interested in arts of people from psychiatric hospitals & children art work.
