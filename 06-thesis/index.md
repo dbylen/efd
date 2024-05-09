@@ -34,7 +34,7 @@ I was inspired by the Jean Dubuffets doodles.Based on those I've created two mas
 
 ![twoartbrutfestivalpostersinthecity](img/two_heads_city.png)
 
-The main visuals contain two outdoor posters. I wanted to express emotions & madness of Art brut. That's why I've chosen two mascots that shout at each other. I've kept the logo simple, because I want it to have different visual styles in the future. It will depend on the theme.
+The main visuals contain two outdoor posters. I wanted to express emotions & madness of Art brut. That's why I've chosen two mascots that shout at each other. The main idea was to shock ambient people, catch attention & be unforgetable. I've kept the logo simple, because I want it to have different visual styles in the future. It will depend on the theme.
 
 ## Copywriting
 The main motto of the festival is "Wake up your inner child".
