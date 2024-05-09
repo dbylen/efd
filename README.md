@@ -13,4 +13,4 @@
 ## Loose ends
 - [Draft content](04-voice-tone-style)
 - [Storytelling](05-storytelling)
-- [06-thesis](06-thesis)
+- [Thesis](06-thesis)
