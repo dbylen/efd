@@ -5,8 +5,6 @@ by Diana Bylen
 
 19th of April 2024
 
-See the slides
-
 ## Abstract
 The bachelor thesis deals with creating a visual identity for a fictional festival focused on Art brut. The aim of the work was to create an unified visual style that effectively communicates the unique style and character of this specific art form.
 
@@ -21,9 +19,7 @@ Hi guys,
 
 my name is Diana Bylen & I'm a graphic design student.
 
-I've always been interested in psychology and arts. I've learned about Art brut thanks to our Arts history subject. I found it very interesting and I've decided to get to know it more.
-
-After I've done some research and after I've created one "art" piece of mine, I've decided to choose it as my Bachelor thesis topic.
+I've always been interested in psychology and arts. I've learned about Art brut thanks to our Arts history subject. I found it very interesting and I've decided to get to know it more. After I've done some research, I've decided to choose it as my Bachelor thesis topic.
 
 ## Process
 I wanted to create something that would benefit our culture and Art brut in Czech republic & I chose to create a festival because of the variety of program. My Art brut festival contains exhibition, projections and art therapeutic workshops. Conceptually it is in honor of Jean Dubuffets 125th birthday.
