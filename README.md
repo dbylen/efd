@@ -11,6 +11,6 @@
 - [A word "sure"](01-one-word)
 
 ## Loose ends
-- [Draft content](04-voice-tone-style)
+- [Voice of tone](04-voice-tone-style)
 - [Storytelling](05-storytelling)
 - [Thesis](06-thesis)
