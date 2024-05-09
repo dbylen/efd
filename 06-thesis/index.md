@@ -53,9 +53,9 @@ I've also created a printed version of the program. I've used funky elements and
 ![programofanartbrutfestival](img/program1.png)
 ![programofanartbrutfestival2](img/program2.png)
 
-Lastly I've created some event materials, like bracelettes and staff cards for example. And promotional items. Such as tote bags, t-shirts, stickers, badges.
+Lastly I've created some event materials, like bracelettes and staff cards for example. And promotional items. Such as tote bags, t-shirts, stickers, badges. All of those had the same visuals. Here are some stickers for example.
 
-![stickersofanartbrutfestival](img/stickers.png) ![artbrutfestivaltothebag](img/bag.png)
+![stickersofanartbrutfestival](img/stickers.png)
 
 ## Conclusion
 It was a long and though journey, but I'm glad of the results. I hope that one day I'll have the opportunity to implement this kind of festival, because I think it would be a strong benefit to our cultural events.
