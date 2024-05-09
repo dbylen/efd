@@ -28,7 +28,7 @@ I wanted to create something that would benefit our culture and Art brut in Czec
 Jean Dubuffet was a French artist known for his innovative approach to art, particularly in the realm of Outsider art, which he termed "Art Brut." He was interested in arts of people from psychiatric hospitals & children art work.
 
 ## The key visuals
-I was inspired by the Jean Dubuffets doodles. Based on those I've created two mascots that are shouting the festivals name. I love the idea of Jean Dubuffet, that he was originally inspired by children. Children are without past experience and they create authentically. Childrens artwork is primitive and sincere.
+I was inspired by the Jean Dubuffets doodles. Based on those I've created two mascots that are shouting the festivals name. I love the idea of Jean Dubuffet, that he was originally inspired by children. Children are without past experience and they create authentically. Childrens artwork is primitive and sincere. That is where his main idea has came from.
 
 ![jeandubuffetdoodlesandmoodboardforartbrutfestival](img/12_Moodboard.png)
 
