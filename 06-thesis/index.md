@@ -28,7 +28,7 @@ I wanted to create something that would benefit our culture and Art brut in Czec
 Jean Dubuffet was a French artist known for his innovative approach to art, particularly in the realm of Outsider art, which he termed "Art Brut." He was interested in arts of people from psychiatric hospitals & children art work.
 
 ## The key visuals
-I was inspired by the Jean Dubuffets doodles. Based on those I've created two mascots that are shouting the festivals name. I love the idea of Jean Dubuffet, that he was originally inspired by children. Children are without past experience and they create authentically. Childrens artwork is primitive and sincere. That is where his main idea has came from.
+I was inspired by the Jean Dubuffets doodles. Based on those I've created two mascots that are shouting the festivals name. I love the idea of Jean Dubuffet, that he was originally inspired by children. Children are without past experience and they create authentically. Childrens artwork is primitive and sincere. That's where his main idea has came from.
 
 ![jeandubuffetdoodlesandmoodboardforartbrutfestival](img/12_Moodboard.png)
 
@@ -42,10 +42,11 @@ After I've creating the outdoor campaign, I've moved to socials. I wanted to kee
 ![artbrutfestivalwebsite1](img/web1.png)
 ![artbrutfestivalwebsite2](img/web2.png)
 
-The main motto of the festival is "Wake up your inner child". It's because of the art therapeutic workshops that people can join. This motto is used on social media a lot. I was thinking that if the festival was successful, it could organize workshops anytime. Art brut festival could also hold competitions for people.
+The main motto of the festival is "Wake up your inner child". It's because of the art therapeutic workshops that people can join. This motto is used on social media a lot. I was thinking that if the festival was successful, it could organize workshops anytime. Art brut festival could also hold competitions for people. The main media for this kind of propagation is Instagram.
 
 ![artbrutfestivalinstagramposts](img/instagram2.png)
 
+I've also created a printed version of the program. I've used funky elements and mascots. I personally love the cover. I found it funny and unique while creating it.
 
 ![programofanartbrutfestival](img/program1.png)
 ![programofanartbrutfestival2](img/program2.png)
