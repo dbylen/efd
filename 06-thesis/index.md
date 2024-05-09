@@ -36,13 +36,16 @@ I was inspired by the Jean Dubuffets doodles. Based on those I've created two ma
 
 The main visuals contain two outdoor posters. I wanted to express emotions & madness of Art brut. That's why I've chosen two mascots that shout at each other. The main idea was to shock ambient people, catch attention & be memorable. I enjoyed creating this stuff, because I felt free. I felt rebelliously and like everything is possible, because it's Art brut.
 
-## Copywriting
-The main motto of the festival is "Wake up your inner child".
+## Copywriting & socials
+After I've creating the outdoor campaign, I've moved to socials. I wanted to keep it simple, but funky. Starting with the website... I've wanted to add some cute and simple animation, that just catches the eye. That's why I've put blinking eyes on the landing page. Then you can find there important information and buy tickets.
 
 ![artbrutfestivalwebsite1](img/web1.png)
 ![artbrutfestivalwebsite2](img/web2.png)
 
-It's because of the art therapeutic workshops that people can join.
+The main motto of the festival is "Wake up your inner child". It's because of the art therapeutic workshops that people can join. This motto is used on social media a lot. I was thinking that if the festival was successful, it could organize workshops anytime. Art brut festival could also hold competitions for people.
+
+![artbrutfestivalinstagramposts](img/instagram2.png)
+
 
 ![programofanartbrutfestival](img/program1.png)
 ![programofanartbrutfestival2](img/program2.png)
