@@ -32,16 +32,26 @@ I wanted to create something that would benefit our culture and Art brut in Czec
 Jean Dubuffet was a French artist known for his innovative approach to art, particularly in the realm of Outsider art, which he termed "Art Brut." He was interested in arts of people from psychiatric hospitals & children art work.
 
 ## The key visuals
-I was inspired by the Jean Dubuffets doodles. Based on those I've created two mascots that are shouting the festivals name. It contains two outdoor posters, where they are separated from each other.
+I was inspired by the Jean Dubuffets doodles.
 
-![jeandubuffetdoodles](img/12_Moodboard.png)
+![jeandubuffetdoodlesandmoodboardforartbrutfestival](img/12_Moodboard.png)
+
+Based on those I've created two mascots that are shouting the festivals name. It contains two outdoor posters, where they are separated from each other.
+
+![twoartbrutfestivalpostersinthecity](img/two_heads_city.png)
 
 I've kept the logo simple, because I want it to have different visual styles in the future. It will depend on the theme.
 
 ## Copywriting
 The main motto of the festival is "Wake up your inner child".
 
+![artbrutfestivalinstagramprofile](img/instagram1.png)
+![artbrutfestivalinstagramprofile2](img/instagram2.png)
+
 It's because of the art therapeutic workshops that people can join.
+
+![programofanartbrutfestival](img/program1.png)
+![programofanartbrutfestival2](img/program2.png)
 
 ## Conclusion
 It was a long and though journey, but I'm glad of the results. I hope that one day I'll have the opportunity to implement this kind of festival, because I think it would be a strong benefit to our cultural events.
