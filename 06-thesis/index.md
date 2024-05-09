@@ -34,7 +34,7 @@ Jean Dubuffet was a French artist known for his innovative approach to art, part
 ## The key visuals
 I was inspired by the Jean Dubuffets doodles. Based on those I've created two mascots that are shouting the festivals name. It contains two outdoor posters, where they are separated from each other.
 
-![jeandubuffetdoodles](img/12_Moodboard.jpg)
+![jeandubuffetdoodles](img/12_Moodboard.png)
 
 I've kept the logo simple, because I want it to have different visual styles in the future. It will depend on the theme.
 
