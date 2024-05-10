@@ -4,7 +4,7 @@ by Diana Bylen
 
 25th of May 2024
 
-See the slides
+See the [slides](img/creativity.pdf)
 
 ## Introduction
 
