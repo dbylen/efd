@@ -14,7 +14,7 @@ The theoretical part focuses on basic information about Art brut, its history, i
 
 The practical part focuses on the concrete steps of creating a visual identity for a festival. It starts with identifying the target group and creating a moodboard for inspiration. It then focuses on the actual design of the visual identity, including the logo, colour scheme, fonts and other graphic elements. It also includes an application of this visual identity to the communication mediums such as posters, billboards, social media, websites and other promotional materials.
 
-Key words: Art brut, visual identity, festival, outsider art, primitive art, visual communication, graphic design
+Keywords: Art brut, visual identity, festival, outsider art, primitive art, visual communication, graphic design
 
 ## Introduction
 Hi guys,
